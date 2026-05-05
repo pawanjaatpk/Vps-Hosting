@@ -9,7 +9,7 @@ https://nivohost.in/vps-hosting ( flat 40% off )
 ## India VPS Hosting
 Get the best india vps hosting for your website that boost your website and application start today!
 
-https://nivohost.in/india-vps-hosting
+https://nivohost.in/india-vps-hosting ( flat 44% off )
 
 <img width="1548" height="770" alt="image" src="https://github.com/user-attachments/assets/bba28b5c-2c26-46fa-a1ca-cca702770526" />
 
@@ -17,7 +17,7 @@ https://nivohost.in/india-vps-hosting
 ## Forex VPS
 If you are finding a best forex vps hosting with MT4 or MT5 support you will get upon Nivohost below the direct link to purchase or view plans.
 
-https://nivohost.in/forex-vps
+https://nivohost.in/forex-vps ( flat 35% off )
 
 <img width="1565" height="774" alt="image" src="https://github.com/user-attachments/assets/702c0225-6e19-4b48-9cc8-233501fa1332" />
 
@@ -25,7 +25,7 @@ https://nivohost.in/forex-vps
 ## Youtube Live Stream VPS
 Take a look with youtube live supported vps with the windows where you can go 24/7 live on youtube.
 
-https://nivohost.in/youtube-live-stream
+https://nivohost.in/youtube-live-stream ( flat 32% off )
 
 <img width="1590" height="736" alt="image" src="https://github.com/user-attachments/assets/db930b5e-0d33-46e2-8c4a-9ae1c94e12ba" />
 
