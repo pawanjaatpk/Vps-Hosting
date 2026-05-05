@@ -1,7 +1,7 @@
 # Vps-Hosting
 Best VPS hosting for your websites. Our cheap VPS plans offer lightning-fast VPS servers, full root access, and instant setup.
 
-https://nivohost.in/vps-hosting
+https://nivohost.in/vps-hosting ( flat 40% off )
 
 <img width="1591" height="771" alt="image" src="https://github.com/user-attachments/assets/7eca75e7-22cb-4eee-b66b-b6ced805d184" />
 
